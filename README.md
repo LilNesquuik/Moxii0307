@@ -1,8 +1,11 @@
 <img src="https://imgur.com/p3vYSaS.png">
 
 
-## I'm <a href="https://jesusqc.es" target="_blank">LilNesquuik</a>!
+## I'm <a href="https://github.com/Moxii0307" target="_blank">LilNesquuik</a>!
 (Prends un COOKIE 🍪)
+
+## Fondateur <a href="https://discord.gg/jau9CHRxs2" target="_blank">SCP-EXTINCTION</a>!
+(SCP Secret laboratory)
 
 
 <div align="center">
